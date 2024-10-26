@@ -4,6 +4,15 @@
 ![qwqer22](https://www.helloimg.com/i/2024/10/26/671c8a012ee19.jpg)                     
 - 你好，我是 qwqer/lovol😆
  ---
+ ### 联系方式
+ - qq: 1669439552/3445778610
+ 
+- Line: [lovol](https://line.me/ti/p/JgmZvcM7uB)
+
+- Discord: lovol2842
+ 
+ 
+ ---
 ### 相关数据😃
 ![状态总览](https://github-readme-stats.vercel.app/api?username=qwqer22&show_icons=true&theme=holi&locale=cn)
 
