@@ -1,4 +1,7 @@
-### Lovol                         ![qwqer22](https://www.helloimg.com/i/2024/10/26/671c8a012ee19.jpg)                     
+### Lovol   
+
+![lovol](https://img.shields.io/badge/lovol_qwqer-pm_nk-blue)
+![qwqer22](https://www.helloimg.com/i/2024/10/26/671c8a012ee19.jpg)                     
 - 你好，我是 qwqer/lovol😆
  ---
 ### 相关数据😃
