@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @qwqer22
-- 👀 下面堆了很多链接
+- 😋 下面是介绍
 
 ![状态总览](https://github-readme-stats.vercel.app/api?username=qwqer22&show_icons=true&theme=holi&locale=cn)
 
